@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @krypcide
+- 👋 Hi, I’m @krypc1de
 - Im a coder 🖥️
 - Im a gamer too 🎮
 - he/him
